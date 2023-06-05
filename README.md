@@ -1,9 +1,7 @@
 ### Hi there 👋
 
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifer.com%2Fen%2Fgifs%2Fsimpsons&psig=AOvVaw2aYrGTpAyq57tKHJ2KqOe4&ust=1686064892486000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCMiGmK23rP8CFQAAAAAdAAAAABAF)
-
-
+![](https://i0.wp.com/www.printmag.com/wp-content/uploads/2021/02/4cbe8d_f1ed2800a49649848102c68fc5a66e53mv2.gif?resize=476%2C280&ssl=1)
 
 
 <!--
